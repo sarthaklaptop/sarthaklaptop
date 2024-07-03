@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **MERN**
 
-- 📫 How to reach me **sarthakpatil355@gmail.com**
+- 📫 How to reach me **sarthakkpatill97@gmail.com**
 
 - ⚡ Fun fact **I am Funny**
 
